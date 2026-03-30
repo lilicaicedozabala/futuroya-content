@@ -1,0 +1,1 @@
+# futuroya-content
